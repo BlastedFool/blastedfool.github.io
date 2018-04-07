@@ -1,0 +1,1 @@
+# blastedfool.github.io
